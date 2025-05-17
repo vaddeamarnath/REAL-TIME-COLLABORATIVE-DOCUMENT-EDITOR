@@ -16,3 +16,8 @@ COMPANY" : CODTECH IT SOLUTIONS
 
 #OUTPUT
 
+![Image](https://github.com/user-attachments/assets/2d8ac4e1-b876-4173-8ed8-8ea4fea4c5fb)
+
+![Image](https://github.com/user-attachments/assets/7a22d540-3cb4-4a55-9b33-ee137a104488)
+
+
